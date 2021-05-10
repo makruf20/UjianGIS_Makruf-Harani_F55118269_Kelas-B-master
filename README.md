@@ -1,0 +1,1 @@
+# UjianGIS_Makruf-Harani_F55118269_Kelas-B-master
